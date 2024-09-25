@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on pro in crypto marketing 
 - 📫 How to reach me 01784304796 , WhatsApp 
 - 😄 Pronouns: the beginner in crypto
-- ⚡ Fun fact:i dont know in crypto but iam indiarested keep to marketing and BTC market
+- ⚡ Fun fact:i dont know in crypto but iam indiarested crypto marketing and BTC market
 - 🙂 some one please help me 😭 
 -<!
 I am poor I want to be a man of some money I want to make Akar family prosperous I want to make my mother happy
